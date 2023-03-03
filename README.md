@@ -1,7 +1,7 @@
 Hi 👋 My name is Tony Alvarez
 =============================
 
-Software Developer & Marketing Advisor
+Marketing VP dabbling in real estate & tech
 --------------------------------------
 
 * 🌍  I'm based in Los Angeles

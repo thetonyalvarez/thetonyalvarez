@@ -1,7 +1,8 @@
 Hi 👋 My name is Tony Alvarez
 =============================
 
-Marketing VP dabbling in real estate & tech
+Senior Marketing & Software Development Leader
+Blending Marketing Expertise with Software Development to Enhance Digital Strategies
 --------------------------------------
 
 * 🌍  I'm based in Los Angeles
